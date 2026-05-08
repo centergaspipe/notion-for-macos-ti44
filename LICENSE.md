@@ -1,4 +1,4 @@
-
+Enhance Notion for macOS with premium Notion for macOS Macro | reminders + goal tracking, the #1 macro. Includes reminders and goal tracking for a smoother experience.
 
 
 
